@@ -8,6 +8,11 @@
 - Jogar xadrez♟️
 - Sair com meus amigos👨🏻‍🤝‍👨🏾
 - Jogar videogames🎮
+
+## Contato
+
+- Email - [
+- Instagram - [@bruno_szanon](https://www.instagram.com/bruno_szanon/)
  
 
 
