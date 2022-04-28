@@ -6,4 +6,5 @@ Xadrez é o melhor jogo existente
 
 O ArturCSegat é ruim
 
-# sou muito carente
+
+# -sou muito carente 
