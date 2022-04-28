@@ -10,4 +10,4 @@ O ArturCSegat é ruim
 - 
 # sou muito carente 
 
-[gcvfdeakjsnmf](https://jstris.jezevec10.com/)
+# [tetrizinho de cria](https://jstris.jezevec10.com/)
