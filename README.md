@@ -11,9 +11,58 @@
 
 ## Contato
 
-- Email - [
+- Email - <brunozanon6@gmail.com>
 - Instagram - [@bruno_szanon](https://www.instagram.com/bruno_szanon/)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
  
+
 
 
 
