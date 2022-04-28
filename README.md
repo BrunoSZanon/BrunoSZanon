@@ -6,5 +6,8 @@ Xadrez é o melhor jogo existente
 
 O ArturCSegat é ruim
 
+- Xadrez é bala
+- 
+# sou muito carente 
 
-# -sou muito carente 
+[gcvfdeakjsnmf](https://jstris.jezevec10.com/)
