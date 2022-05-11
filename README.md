@@ -20,6 +20,10 @@
 - Email - <brunozanon6@gmail.com>
 - Instagram - [@bruno_szanon](https://www.instagram.com/bruno_szanon/) 
 
+## Curiosidades
+
+- Amo jogar tetris
+- Sei montar um cubo magico(3x3), e meu tempo recorde foi 38 segundos
 
 ### [🤫](https://jstris.jezevec10.com/)
 
